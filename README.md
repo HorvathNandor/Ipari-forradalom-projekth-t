@@ -1,1 +1,0 @@
-# Ipari-forradalom-projekth-t
